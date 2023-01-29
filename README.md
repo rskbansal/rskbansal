@@ -1,1 +1,1 @@
-### Winning is a Grindset! ⚡
+### ⚡ Winning is a Grindset! ⚡
